@@ -1,0 +1,1 @@
+# hirst-spot-painting
